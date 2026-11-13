@@ -1,0 +1,1 @@
+Download the .html and double click it and there you go! 3d chess lens is a game where you have only 3 photo shoots available winner is the player that gains more points by chess board photoshooting...! enjoy!
